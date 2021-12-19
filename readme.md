@@ -1,0 +1,1 @@
+Software Grad - Dev of wed 3.0 - Backend cloud developer - React JS frontend Editor - Free Lance NFT creator
